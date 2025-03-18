@@ -1,3 +1,3 @@
 # KartFrTut
 
-boi tutorial is in the exe LOL
+turn off anti virus!! extract kartfr .zip then install kartfr.exe theres the tutorial boii!!!
